@@ -1,4 +1,4 @@
 ^^
 I
-LIKE
+<3
 CODE
